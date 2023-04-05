@@ -1,1 +1,0 @@
-# Sartek_roket
